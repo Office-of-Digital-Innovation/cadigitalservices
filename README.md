@@ -8,6 +8,7 @@ medical cannabis from scratch – we are working with this new principle:
 Users matter.
 
 Secretary Marybel Batjer, California Government Operations Agency
+
 [Code for America Summit, November 2, 2016](https://www.youtube.com/watch?v=yb8fZrrDT00)
 
 California’s Department of Technology is one of the largest technology
